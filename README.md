@@ -10,7 +10,7 @@
 
 - **You Can Reach ME Via  📫 [ Sodha ](https://t.me/bjsodha)**
 
-- **If You Need Any Support Contact My [ Bhimsinh Sodha ](https://t.me/bjsodha)**
+- **If You Need Any Support Contact [ Bhimsinh Sodha ](https://t.me/bjsodha)**
 
 <!---
 Bhimsinh/Bhimsinh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
